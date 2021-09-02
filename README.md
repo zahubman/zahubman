@@ -9,7 +9,7 @@ Here are some ideas to get you started:
  I’m currently learning web development ⌨️<br>
  I’m looking to continued growth in coding ⤴️<br>
  I’m looking for support and advice 📝<br>
- I enjoy creativity and knowledge. 🖊️
+ I enjoy creativity and learning. 🖊️
  
 
 
